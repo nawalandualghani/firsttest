@@ -14,4 +14,4 @@ Aisha Rashed
 ahmed
 
 
-tere are no adj to descrip thos amazing papole
+there are no adj to describe this amazing people
